@@ -89,7 +89,7 @@ P.S ( Personal Saving ):
 - ~ Bitcoin is " scam ", and " fraud ". financial penalty USD $ 999999999999999999999999999999999999999999999 ( alias " unlimited " nor " Infinity " ). law penalty " Galaxy social law "
 - Prolog,
 - how it could be the person who original own " DOS " computer operating system as the founder and owner of Bitcoin ?
-- the fact and reality that the planet was suffering the Supernova and massive flood in the past. suddenly, some of the peoples ( include " Diskette A and Diskette B computer person " ) came ( without granted permission. sneaking like thief ) to the planet while the original local peoples really very busy about the Supernova and massive flood. they were stole and use the local peoples's computers and then create the Bitcoin software on the Supernova planet 
+- the fact and reality that the planet was suffering the Supernova and massive flood in the past. suddenly, some of the unknown peoples ( include " Diskette A and Diskette B computer person " ) came ( without granted permission. sneaking like thief ) to the planet while the original local peoples really very busy about the Supernova and massive flood. they were stole and use the local peoples's computers and then create the Bitcoin software on the Supernova planet 
 - ~ star classification/group by ( sorted and identify ) " colour " ( sample reference: https://en.wikipedia.org/wiki/Color_index ). list:
 - #1 O5V: violet star
 - #2 B0V: purple star
